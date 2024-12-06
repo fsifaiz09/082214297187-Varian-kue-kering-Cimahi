@@ -10,3 +10,5 @@ Kontak : 082214297187
 https://kuekeringlezatkhascimahi.blogspot.com/
 
 https://kuekeringlezatkhascimahi.blogspot.com/2024/12/082214297187-kue-kering-tradisional.html
+
+https://share.evernote.com/note/3c320999-ad28-8583-62ae-84474feedf33
